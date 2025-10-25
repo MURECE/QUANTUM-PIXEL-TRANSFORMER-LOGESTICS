@@ -1,0 +1,1 @@
+Advance ai logestics active transformer stolen and publish by deep seek . library design to meet ai half way , Multimodal data stored as pixils for parralel gpu processing ? advance delta compression , cpu conductor gpu orchestra .
